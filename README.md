@@ -6,4 +6,4 @@ Creating clean, user-friendly web & mobile experiences.
 
 🔗 LinkedIn: www.linkedin.com/in/harsha-bacham
 
-📸 Instagram: https://instagram.com/harshabacham
+📸 Instagram: https://instagram.com/harsha_bacham
