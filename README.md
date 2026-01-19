@@ -4,6 +4,6 @@ Creating clean, user-friendly web & mobile experiences.
 
 🌐 Portfolio: https://harshabacham.vercel.app
 
-🔗 LinkedIn: https://linkedin.com/in/harshabacham
+🔗 LinkedIn: www.linkedin.com/in/harsha-bacham
 
 📸 Instagram: https://instagram.com/harshabacham
